@@ -1,0 +1,1 @@
+Un manifesto filosofico e neurocognitivo sull'IA, l'ansia da automazione e il "trauma ontologico" dell'agire artificiale. Strutturato in frammenti tra neuroscienze, bioetica e architettura dei sistemi.
